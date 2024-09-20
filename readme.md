@@ -1,0 +1,1 @@
+hallo ik ben Erik en ben bezig met programmeren leren.
